@@ -1,3 +1,11 @@
-# Web 2 Starter
+# google doodle
 
-Put information about your project here. 
+## brainstorm ideas 
+
+* the divine 9 
+* 
+
+## research 
+*movies
+* links
+* tead talks
